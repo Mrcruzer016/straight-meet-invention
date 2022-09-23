@@ -1,2 +1,3 @@
-# straight-meet-invention
-Menggunakan  dengan cara positif no ambisius bersama merancang potensi baru 
+#cruzer straight-meet-invention
+Menggunakan  dengan cara positif tidak ber Ambisi fatal,
+ bersama merancang potensi baru 
